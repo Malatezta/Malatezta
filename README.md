@@ -8,5 +8,6 @@
 - 💬 Ask me about anthropology
 - 📫 How to reach me: sgoncearenco92@gmail.com
 - 😄 Pronouns: bă
-- ⚡ Fun fact: 
--->
+
+![000](https://user-images.githubusercontent.com/77987225/105854331-b04ac280-5fde-11eb-9d34-271b2559709c.PNG)
+
